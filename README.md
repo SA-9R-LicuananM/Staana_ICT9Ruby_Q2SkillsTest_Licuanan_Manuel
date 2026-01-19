@@ -1,0 +1,2 @@
+# Staana_ICT9Ruby_Q2SkillsTest_Licuanan_Manuel
+hii
